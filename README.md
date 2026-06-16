@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Shaistha Razin
+# I'm Shaistha Razin
 
 ## Electronics and Communication Engineering (ECE) Student
 
